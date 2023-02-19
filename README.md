@@ -1,2 +1,1 @@
-# MC
-Cool I just got a free Minecraft gift code at https://freeminecraftgiftcode.net
+Guess what? I found a site that's giving Minecraft gift codes away for free! https://freeminecraftgiftcode.net
